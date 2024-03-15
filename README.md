@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MyDreamAppteam
 - 👀 I’m interested in Mobile App Devlopment
-- 🌱 I’m currently learning latest Technok
+- 🌱 I’m currently learning latest Tech
 - 📫 How to reach me ...
 - 😄 Pronouns:He 
 - ⚡ Fun fact: ...
